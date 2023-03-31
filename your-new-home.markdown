@@ -25,5 +25,3 @@ You can contact your area representative via email [besa.ale﻿xandria@gmail.com
 Vienna is a town in Fairfax County, Virginia approximately 12 miles west of Washington DC.  
 
 You can contact your area representative via email [besa.mclean@gmail.com](besa.mclean@gmail.com) or click [here]() to view the Vienna Guide.
-
-test edit.
